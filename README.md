@@ -1,4 +1,4 @@
-﻿# Hi there, I'm Andleep Hamza 👋
+﻿# Hi there, I'm Hamza Aslam 👋
 
 <div align="center">
 
